@@ -1,4 +1,12 @@
-Flow
+Rube Goldberg - mooie vorm voor Teambuilding
+
+project kick-offs zijn de mooiste momenten om te experimenteren: Nieuwe teams, nieuwe projecten. Hoe krijgen we het team snel bijeen en met elkaar aan de slag? We kiezen soms bewust voor de inhoud: Snel aan de slag met een onderwerp op een andere manier. Soms kiezen we ook voor iets heel anders.
+
+##Rube Goldberg
+  
+
+
+
 Het is lastig om een goede start van een team of meerdere teams vorm te geven. Vaak wordt er een hele agenda bedacht, zijn er veel punten die iedereen kwijt wil. En dat terwijl het om twee dingen draait: drive en flow.  De rest kan op een ander moment of op een andere manier.
 Voor de kick-off van onze 20% tijd was dat ook de uitdaging: We schoten meteen in de agenda, de doelen en de speeches. Dat was precies niet de bedoeling….
 Zonder agenda
@@ -6,7 +14,7 @@ Wat kun je ‘organiseren’ voor 40 man zonder agenda, doel en toch flow creër
 Rube goldberg
 A Rube Goldberg machine is a contraption, invention, device or apparatus that is deliberately over-engineered to perform a simple task in a complicated fashion, usually including a chain reaction. The expression is named after American cartoonist and inventor Rube Goldberg (1883–1970). (Wiki)
 Onze inspiratie kwam van deze clip van OK GO: https://www.youtube.com/watch?v=qybUFnY7Y8w
-Als voorbereiding hebben we deze clip en de wiki een dag van tevoren opgestuurd en iedereen gevraagd iets mee te nemen. 
+Als voorbereiding hebben we deze clip en de wiki een dag van tevoren opgestuurd en iedereen gevraagd iets mee te nemen.
 Op de woensdag zelf lieten we de clip van OK GO zien en wachtten af wat er ging gebeuren. De energie kwam toen iemand bedacht om het tappen van een biertje als einddoel te maken. Veel mensen klikten met dit doel. Van daaruit begonnen er een aantal mensen te zoeken naar oplossingen en spullen.
 Al snel gingen werden er groepjes gevormd en ontstonden er kleine groepen die los van elkaar aan de slag gingen. Zonder een vaste rol maar organisch pakte iedereen een rol waar hij of zij zich prettig
 bij voelt. Iedereen had de ruimte om iets in te brengen wat er voor zorgde dat iedereen wel iets ging doen. Je merkte dat er vanuit verschillende hoeken initatieven kwamen en hier goed door andere teamleaden op werd ingespeeld. Er werd continu getweaked aan werkzaamheden en uiteindelijk werden alle onderdelen van de groepen aan elkaar vast gezet worden zodat het biertje getapt kon worden. Iedereen deed mee en bouwde aan een deel, waarbij er als vanzelf een volgorde in de machine ontstond. Vanuit de tap ontwikkelde zich vanzelf een lijn en uiteindelijk werden de ‘gaten’ opgevuld.
