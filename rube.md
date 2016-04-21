@@ -3,7 +3,9 @@ Rube Goldberg - mooie vorm voor Teambuilding
 project kick-offs zijn de mooiste momenten om te experimenteren: Nieuwe teams, nieuwe projecten. Hoe krijgen we het team snel bijeen en met elkaar aan de slag? We kiezen soms bewust voor de inhoud: Snel aan de slag met een onderwerp op een andere manier. Soms kiezen we ook voor iets heel anders.
 
 ##Rube Goldberg
-  
+
+
+###
 
 
 
